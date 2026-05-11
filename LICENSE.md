@@ -1,4 +1,4 @@
-
+Gimp for macOS ultimate Template - real-time preview and blend modes offers the most advanced Gimp for macOS template, with real-time preview and blend modes. Ideal for
 
 
 
